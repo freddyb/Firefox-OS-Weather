@@ -1,0 +1,1 @@
+https://marketplace.firefox.com/app/weather-app/
